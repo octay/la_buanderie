@@ -1,2 +1,2 @@
-# la_buanderie
-つまらないもの
+# la buanderie
+此処見つけてくれてありがとう
